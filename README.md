@@ -11,3 +11,5 @@ A pisać kod będą:
 
  Do Boju!
  o bogowie, walka!!!
+
+Hej, hej! -Przemek
