@@ -10,4 +10,4 @@ A pisać kod będą:
  - Przemysław Myka
 
  Do Boju!
- 
+ o bogowie, walka!!!
