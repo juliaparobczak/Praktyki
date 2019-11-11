@@ -3,8 +3,8 @@
 Oto zabawny dokument tekstowy
 
 A pisać kod będą:
- - Patryk Rybak
- - Pioter 'Ciasto' Gańko
+ - Patryk Rybcio
+ - Pjoter Gniado
  - Julia Piekarska
  - Julia Parobczak
  - Przemysław Myka
