@@ -13,3 +13,5 @@ A pisać kod będą:
  o bogowie, walka!!!
 
 Hej, hej! -Przemek
+
+Czy ktoś to jeszcze czyta?
